@@ -13,3 +13,6 @@ ESTO ES DE JOAQUIN
 
 
 ESTOY HACIENDO UN.EXE
+dwq
+dw
+qdwq
